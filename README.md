@@ -4,4 +4,4 @@
 -  I’m looking to collaborate on Blooket HAcks
 -  You can reach me via hehenotsheshetest1@outlook.com
 - You can also reach me at 
-- I have not been online for a bit
+- I have not been online for a bit. Sorry about that.
