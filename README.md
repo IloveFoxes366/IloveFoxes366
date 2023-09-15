@@ -5,3 +5,5 @@
 -  You can reach me via hehenotsheshetest1@outlook.com
 - You can also reach me at 
 - I have not been online for a bit. Sorry about that.
+- I suggest visiting @CPScript for better hacks
+- Have a good day.
